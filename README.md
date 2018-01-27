@@ -60,7 +60,4 @@
 Твиттер|arinaautumn|[тут](https://twitter.com/arinaautumn)
 Инстаграм|jolredx|[тут](https://www.instagram.com/jolredx/)
 
-[Моя страница ВКонтакте](https://vk.com/id278054955) 
-
-![Моя фотография](https://pp.userapi.com/c834100/v834100687/68a8a/4Y_2Di3zEG8.jpg)
-
+![my favorite city](https://pp.userapi.com/c841526/v841526536/4b21d/mGYof-J2Y3U.jpg)
